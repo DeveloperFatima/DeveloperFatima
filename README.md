@@ -11,6 +11,7 @@
 - 💬 Ask me about **HTML, & CSS**
 
 - 📫 How to reach me **fatimadanish780@gmail.com**
+- **https://www.linkedin.com/in/fatima-danish-b20295327/#:~:text=www.linkedin.com/in/fatima%2Ddanish%2Db20295327**
 
 - ⚡ Fun fact **I am also playing table tennis**
 
